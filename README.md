@@ -4,7 +4,7 @@ Olá, conheça-me melhor
 
 José George Soares Miranda Júnior 
 
-👨🏽‍💻 18 anos | 🇧🇷 Imperatriz, Maranhão 
+👨🏽‍💻 19 anos | 🇧🇷 Imperatriz, Maranhão 
 
 Formação:
 
